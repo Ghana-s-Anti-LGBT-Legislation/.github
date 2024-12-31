@@ -15,7 +15,7 @@ The recent ruling by Ghana’s highest court dismissed challenges to the constit
 
 The Supreme Court’s ruling suggests a broad interpretation of Ghana’s laws in favor of cultural and societal norms over individual liberties. By affirming the bill’s legitimacy, the court has aligned itself with the majority sentiment in a deeply conservative society. However, this stance has been criticized for sidelining the voices of marginalized groups and ignoring international human rights standards.
 
-READ MORE HERE:[TOP INTERSTING STORIES](https://hospitalitygh.com/understanding-ghanas-anti-lgbt-legislation-implications-and-global-reactions/)
+Read more here: [Top Interesting Stories](https://hospitalitygh.com/understanding-ghanas-anti-lgbt-legislation-implications-and-global-reactions/)
 
 
 ## Reactions and Criticism
